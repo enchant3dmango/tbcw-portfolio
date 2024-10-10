@@ -1,6 +1,5 @@
 # My Text-Based Content Writing Portfolio
 
-## X (formerly Twitter)
 ### English
 1. 
 
